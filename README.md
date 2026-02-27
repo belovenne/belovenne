@@ -1,5 +1,5 @@
 ## welcome to my little corner of the internet. i use this page as a **portal**.
-![that me](https://github.com/user-attachments/assets/8d83554e-1be0-4295-b62a-8a012f7d9973)
+<img src="https://pbs.twimg.com/media/GcbeYyQWEAAf7tp?format=jpg&name=small" width="500">
 
                       who she/they
 
