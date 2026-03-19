@@ -8,7 +8,7 @@
 ː 22 yo
 ː draws things
 ː plays Sims 3 & 4 
-ː learns eng/esp. confidence: low,
+ː speak rus learns eng/esp. confidence: low,
 ː is neurodivergent   so if I'm weird, that's why. if you're weird, even better
 ː say hi! I don't bite. probably. ˙ᴗ˙
 
