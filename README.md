@@ -24,4 +24,4 @@ $\color{ff69b4}{\text{if you are from Pony Town — whisper to me to chat!}}$
 
 **say hi! I don't bite. probably.**
 * 💌 **my current favorite stamps:**
-<img src= "https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg"/>
+<img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="75">
