@@ -4,19 +4,18 @@
   <img src="https://img.shields.io/badge/status-AFK-pink?style=flat-square" />
 </p>
 
-i'm **22**, mostly **drawing things** and switching between **rus-eng-esp**. neurodivergent. probably afk, the hardware is far away sometimes. 
+hi, my name Sonya she/they i'm **22**, mostly **drawing things**, bind books, cook, touch the grass and switching between **rus-eng-esp**. neurodivergent. probably afk, the hardware is far away sometimes. 
 
 [tumblr](https://www.tumblr.com/belovenne) — art blog
-
 
 ---
 
 ### $\color{ff69b4}{\text{pony town section}}$
-$\color{ff69b4}{\text{if you see me in pony town — whisper to chat.}}$
+$\color{ff69b4}{\text{if you see me in pony town whisper to chat.}}$
 
 ---
 
-i'm an artist. i can make your mother happy with a character postcard. i'm friendly, but don't harass me. keep it chill.
+i'm an artist and i can make your mother happy with a character postcard. i'm friendly, but don't harass me!! keep it chill.
 
 <div align="center">
   <img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="90">
@@ -28,3 +27,4 @@ i'm an artist. i can make your mother happy with a character postcard. i'm frien
   <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="90">
   <img src="https://64.media.tumblr.com/9863aa5d0755123a57c835faf9268e2d/daa0fddf21ff9628-92/s400x600/289b5f295ce3b812b64ca1ee3c6343714b5d22c3.gifv" width="90">
 </div>
+<img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv">
