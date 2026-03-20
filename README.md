@@ -6,44 +6,41 @@
 
 ---
 
-### 𓃠 ː portal info
+### ✦ ː portal info
 * ː **22 yo**
-* ː **draws things**
-* ː **plays Sims 3 & 4**
+* ː **drawing things**
 * ː **rus / eng / esp**
 * ː **neurodivergent**
-* ː **confidence: low**
+* ː **probably afk**
 
 ---
 
 ### 𓃠 ː find me
-
-✉ ː [tumblr](https://www.tumblr.com/belovenne) - my blog and art
-
----
-
-###  $\color{ff69b4}{\text{pony town section}}$
-
-$\color{ff69b4}{\text{if you are from pony town — whisper to me to chat!}}$
+* ː [tumblr](https://www.tumblr.com/belovenne) — *my art & static*
+* ː [pinterest](https://ru.pinterest.com/sona68538/_profile/) — *my visual brain*
 
 ---
 
-> **note:** i'm not ignoring you. i'm probably just **AFK**. 
-> just... the computer is far away sometimes.
+### 🎀 $\color{ff69b4}{\text{pony town section}}$
 
-**say hi! i don't bite. probably.**
+$\color{ff69b4}{\text{if you see me in pony town — whisper to chat.}}$
+
+---
+
+> **note:** i'm not ignoring you. i'm just **dead tired**.
+> sometimes the computer is just too far away to exist.
+
+**say hi. i don't bite. probably.**
 
 ---
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="100">
-  <img src="https://64.media.tumblr.com/6581469ef5dc70f26791fd46a286179d/a53a68b8879c96aa-b6/s100x200/fa307fd4178b1fbea1ad61d54613254fe397504e.pnj" width="100">
-  <img src="https://64.media.tumblr.com/046bd2fc9bb5dcf8bbda229aaca2a9c7/efa59677884e5c34-ba/s100x200/3e742f7fff9b6f03ce6c38a6829330c6ca4b195b.pnj" width="100">
-  <img src="https://64.media.tumblr.com/9f732af3b0af7789a368c8f18a9178ab/b155188815db4ce9-7e/s100x200/cbf7dd2eb2e0d9496a5e8434c2053182511ba623.pnj" width="100">
-  <img src="https://64.media.tumblr.com/959c0d6c124cf71b36b879c192f76273/dfb5928b130338d0-15/s100x200/33fc2ade96a97090b0159689fb02bcd2f15f34ea.pnj" width="100">
-  <img src="https://64.media.tumblr.com/2b6bcd6d26c858e3856f6a7f6d04af1c/1772854da6a99e02-d8/s100x200/12342508c70502126274c2aaa1c9c8535331f9e1.gifv" width="100">
-  <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="100">
-  <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="100">
-  <img src="https://64.media.tumblr.com/9863aa5d0755123a57c835faf9268e2d/daa0fddf21ff9628-92/s400x600/289b5f295ce3b812b64ca1ee3c6343714b5d22c3.gifv" width="100">
+  <img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="85">
+  <img src="https://64.media.tumblr.com/046bd2fc9bb5dcf8bbda229aaca2a9c7/efa59677884e5c34-ba/s100x200/3e742f7fff9b6f03ce6c38a6829330c6ca4b195b.pnj" width="85">
+  <img src="https://64.media.tumblr.com/9f732af3b0af7789a368c8f18a9178ab/b155188815db4ce9-7e/s100x200/cbf7dd2eb2e0d9496a5e8434c2053182511ba623.pnj" width="85">
+  <img src="https://64.media.tumblr.com/959c0d6c124cf71b36b879c192f76273/dfb5928b130338d0-15/s100x200/33fc2ade96a97090b0159689fb02bcd2f15f34ea.pnj" width="85">
+  <img src="https://64.media.tumblr.com/2b6bcd6d26c858e3856f6a7f6d04af1c/1772854da6a99e02-d8/s100x200/12342508c70502126274c2aaa1c9c8535331f9e1.gifv" width="85">
+  <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="85">
+  <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="85">
+  <img src="https://64.media.tumblr.com/9863aa5d0755123a57c835faf9268e2d/daa0fddf21ff9628-92/s400x600/289b5f295ce3b812b64ca1ee3c6343714b5d22c3.gifv" width="85">
 </div>
-
