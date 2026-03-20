@@ -6,7 +6,7 @@
 
 i'm **22**, mostly **drawing things** and switching between **rus-eng-esp**. neurodivergent. probably afk, the hardware is far away sometimes. 
 
-[tumblr](https://www.tumblr.com/belovenne) — *art & static*
+[tumblr](https://www.tumblr.com/belovenne) — art blog
 
 
 ---
