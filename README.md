@@ -23,5 +23,5 @@ $\color{ff69b4}{\text{if you are from Pony Town — whisper to me to chat!}}$
 > just... the computer is far away sometimes. 
 
 **say hi! I don't bite. probably.**
-* 💌 **my current favorite stamps:**
-<img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="100"> <img src="https://64.media.tumblr.com/6581469ef5dc70f26791fd46a286179d/a53a68b8879c96aa-b6/s100x200/fa307fd4178b1fbea1ad61d54613254fe397504e.pnj" width="100"> <img src="https://64.media.tumblr.com/046bd2fc9bb5dcf8bbda229aaca2a9c7/efa59677884e5c34-ba/s100x200/3e742f7fff9b6f03ce6c38a6829330c6ca4b195b.pnj" width="100">
+
+<img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="100"> <img src="https://64.media.tumblr.com/6581469ef5dc70f26791fd46a286179d/a53a68b8879c96aa-b6/s100x200/fa307fd4178b1fbea1ad61d54613254fe397504e.pnj" width="100"> <img src="https://64.media.tumblr.com/046bd2fc9bb5dcf8bbda229aaca2a9c7/efa59677884e5c34-ba/s100x200/3e742f7fff9b6f03ce6c38a6829330c6ca4b195b.pnj" width="100"> <img src="" width="100"> <gif src="https://64.media.tumblr.com/825f0d7cb4a6dc8aa18b54a75384349f/d13620ee9b770747-87/s100x200/53b936386a9146cf9b0622dbed2b0dfee4498e5e.gifv" width="100">
