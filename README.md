@@ -5,23 +5,15 @@
 </p>
 
 ---
+*  i'm **22yo**, mostly **drawing things** and switching between **rus-eng-esp** while being **neurodivergent** and **probably afk**.
+---
 
-### ✦ ː portal info
-* ː **22 yo**
-* ː **drawing things**
-* ː **rus / eng / esp**
-* ː **neurodivergent**
-* ː **probably afk**
+###   find me
+*  [tumblr](https://www.tumblr.com/belovenne) — *my art & static*
 
 ---
 
-### 𓃠 ː find me
-* ː [tumblr](https://www.tumblr.com/belovenne) — *my art & static*
-* ː [pinterest](https://ru.pinterest.com/sona68538/_profile/) — *my visual brain*
-
----
-
-### 🎀 $\color{ff69b4}{\text{pony town section}}$
+###  $\color{ff69b4}{\text{pony town section}}$
 
 $\color{ff69b4}{\text{if you see me in pony town — whisper to chat.}}$
 
