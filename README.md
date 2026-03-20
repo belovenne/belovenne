@@ -18,9 +18,6 @@ $\color{ff69b4}{\text{if you see me in pony town — whisper to chat.}}$
 
 i'm an artist. i can make your mother happy with a character postcard. i'm friendly, but don't harass me. keep it chill.
 
-> probably afk.
----
-
 <div align="center">
   <img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="90">
   <img src="https://64.media.tumblr.com/046bd2fc9bb5dcf8bbda229aaca2a9c7/efa59677884e5c34-ba/s100x200/3e742f7fff9b6f03ce6c38a6829330c6ca4b195b.pnj" width="90">
