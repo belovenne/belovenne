@@ -24,5 +24,14 @@ $\color{ff69b4}{\text{if you are from Pony Town — whisper to me to chat!}}$
 
 **say hi! I don't bite. probably.**
 * 💌 **my current favorite stamps:**
-  * <img src="https://image.reverb.chat/s/a/a408660e-8ff4-4d8e-be89-6617c5b6ae04.png" width="80" alt="vintage lamb stamp" /> **stamps from friends!**
-  * <img src="https://image.reverb.chat/s/a/b4718501-1b96-4856-9d33-911181f62309.png" width="80" alt="I ❤️ Boobies stamp" />
+---
+
+<h3 align="center">✦ ː collectibles ː ✦</h3>
+
+<div align="center">
+
+| | | | |
+| :---: | :---: | :---: | :---: |
+| <img src="./images/lambs_stamp.png" alt="Lambs" width="100"> | <img src="./images/pink_skull_stamp.png" alt="Pink Skull" width="100"> | <img src="./images/pika_dance_stamp.gif" alt="Dancing Pikachu" width="100"> | <img src="./images/boobies_stamp.gif" alt="I ❤️ Boobies" width="100"> |
+
+</div>
