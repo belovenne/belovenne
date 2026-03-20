@@ -43,7 +43,7 @@ $\color{ff69b4}{\text{if you are from pony town — whisper to me to chat!}}$
   <img src="https://64.media.tumblr.com/825f0d7cb4a6dc8aa18b54a75384349f/d13620ee9b770747-87/s100x200/53b936386a9146cf9b0622dbed2b0dfee4498e5e.gifv" width="100">
   <img src="https://64.media.tumblr.com/959c0d6c124cf71b36b879c192f76273/dfb5928b130338d0-15/s100x200/33fc2ade96a97090b0159689fb02bcd2f15f34ea.pnj" width="100">
   <img src="https://64.media.tumblr.com/2b6bcd6d26c858e3856f6a7f6d04af1c/1772854da6a99e02-d8/s100x200/12342508c70502126274c2aaa1c9c8535331f9e1.gifv" width="100">
-  <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="1000">
+  <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="100">
   <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="100">
   <img src="https://64.media.tumblr.com/9863aa5d0755123a57c835faf9268e2d/daa0fddf21ff9628-92/s400x600/289b5f295ce3b812b64ca1ee3c6343714b5d22c3.gifv" width="100">
 </div>
