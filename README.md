@@ -6,7 +6,7 @@
 
 hi, my name Sonya she/they i'm **22**, mostly **drawing things**, bind books, cook, touch the grass and switching between **rus-eng-esp**. neurodivergent. probably afk, the hardware is far away sometimes. 
 
-[tumblr](https://www.tumblr.com/belovenne) — art blog
+[tumblr](https://www.tumblr.com/belovenne) — *fr, my sims, art, character, moods, me
 
 ---
 
@@ -25,6 +25,6 @@ i'm an artist and i can make your mother happy with a character postcard. i'm fr
   <img src="https://64.media.tumblr.com/2b6bcd6d26c858e3856f6a7f6d04af1c/1772854da6a99e02-d8/s100x200/12342508c70502126274c2aaa1c9c8535331f9e1.gifv" width="90">
   <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="90">
   <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="90">
-  <img src="https://64.media.tumblr.com/9863aa5d0755123a57c835faf9268e2d/daa0fddf21ff9628-92/s400x600/289b5f295ce3b812b64ca1ee3c6343714b5d22c3.gifv" width="90">
+  <img src="https://64.media.tumblr.com/47f20c819223a57ac78b850149efe1b7/08b29c89cf8853c4-fb/s250x400/cfa3a1a8c9a2ae9d48670a223b541c29be2abec0.gifv" width="90">
 </div>
 <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv">
