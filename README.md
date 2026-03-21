@@ -15,7 +15,7 @@ $\color{ff69b4}{\text{if you see me in pony town whisper to chat.}}$
 
 ---
 
-i'm an artist and i can make your mother happy with a character postcard. i'm friendly, but don't harass me!! keep it chill.
+i'm an artist and i'm friendly, but don't harass me!! keep it chill.
 
 <div align="center">
   <img src="https://64.media.tumblr.com/59da7313697e00dbd883c61525758a1b/c7622e3007499f41-2f/s250x400/ae08a439a18683c1ea01e72ef8777b970055450f.jpg" width="90">
