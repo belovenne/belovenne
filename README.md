@@ -26,5 +26,6 @@ i'm an artist and i'm friendly, but don't harass me!! keep it chill.
   <img src="https://64.media.tumblr.com/d4116188abde9f047a55f2abfa4154db/3fda5e44e12fd176-e1/s100x200/11640ad502d457a39363cf16507e6ddf8643dc6f.pnj" width="90">
   <img src="https://64.media.tumblr.com/19e9f424b53f5227d24165326302e556/6c52151cc65b5231-e5/s400x600/110a75fca54a34d0d9ea07531cf62322913944cd.pnj" width="90">
   <img src="https://64.media.tumblr.com/47f20c819223a57ac78b850149efe1b7/08b29c89cf8853c4-fb/s250x400/cfa3a1a8c9a2ae9d48670a223b541c29be2abec0.gifv" width="90">
+  <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv">
 </div>
-<img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv">
+
