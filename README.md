@@ -34,4 +34,3 @@ just my favorite dolls
   <img src="https://64.media.tumblr.com/0f732d3fbc00923e5c250dc143a8dece/e40f6ea1494501bd-27/s540x810/cf3daa368c4795cea3977e34e67024704150bd29.pnj">
   <img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv">
 </div>
-
